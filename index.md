@@ -36,7 +36,7 @@ I teach and assist classes for undergraduate and graduate students.
 
 #### Undergraduates:
 
-- Introduction to Sociology, in-depth seminar, Autumn 2025, Sciences Po
+- Introduction to Sociology, in-depth seminar, Autumn 2025, Sciences Po [evaluations](https://drive.google.com/file/d/1nGv0Tvn-zWbjNWmkfTNC3rTpez8sNP7I/view?usp=sharing)
 
 - Introduction to Sociology, in-depth seminar, Autumn 2019, University of Mannheim
 
